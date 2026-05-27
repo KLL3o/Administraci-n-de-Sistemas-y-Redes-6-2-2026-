@@ -1,1 +1,4 @@
-# Administraci-n-de-Sistemas-y-Redes-6-2-2026-
+# Administracion-de-Sistemas-y-Redes
+Kuo Lee Felipe Leonardo
+6°2
+CICLO LECTIVO 2026
